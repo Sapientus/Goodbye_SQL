@@ -9,7 +9,7 @@ I'll list here some recent things which happened with me and made me think of pa
 2. December 2023 - breaking up with someone I loved.
 3. December 2023 - another old patient died but not so close to me.
 4. December 2023 - my nurse was fired so I had double work which is not payed.
-5. December 2023 - conflicts with our director.
+5. December 2023 - unsuccessful attempt to conflict with our directors and prove their dirty work.
 6. December 2023 - unsuccessful attempt to make up with ex.
 7. December 2023 - lost my colleague in Russian attack.
 8. January 2024 - my old friend appeared to have brain cancer, trying my best to help her.
